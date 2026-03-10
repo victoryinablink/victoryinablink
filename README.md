@@ -1,4 +1,4 @@
-halloooo made this for pt! i'm afk a LOT so whisp me for anything. i'm mainly into hsr so you will see me as hsr horses a lot. i'm very passionate abt phaidei and amphoreus!!!! pls talk to me about them i will not stfu
+halloooo made this for pt! i'm afk a LOT so whisp me for anything (usually sitting with @ImprisonedXII or @crematedfeathers) i'm mainly into hsr so you will see me as hsr horses a lot. i'm very passionate abt phaidei and amphoreus!!!! pls talk to me about them i will not stfu
 
 other thingies i'm into: enstars, bandori, pjsk, d4dj, supernatural, FNaF, super mario franchise, honkai impact 3rd, zenless zone zero, genshin impact (fandom preferably dni), sdr2, madoka magica, revolutionary girl utena, hunter x hunter, death note, hypnosis mic, and other stuff i can't remember rn
 
