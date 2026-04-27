@@ -3,6 +3,6 @@ haiiii i'm afk a LOT so whisp me for anything (usually sitting with @ImprisonedX
 add me on hsr!! (america server): 621274430
 
 
-i hide very freely so please don't take offense if i temporarily hide you. if i perma hide, it's simply because of personal comfort reasons. i will not unhide don't bother asking
+i hide very freely so please don't take offense if i temporarily hide you. if i perma hide, it's simply because of personal reasons. i won't unhide don't bother asking
 
 dni: basic dni critera, minors STRICTLY DNI, phairene/castordei shippers. other phainon/mydei ships are on thin ice. other than that feel free to interact!! i love making friends
