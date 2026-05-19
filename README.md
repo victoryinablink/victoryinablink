@@ -1,6 +1,6 @@
-haiiii i'm afk a LOT so whisp me for anything (usually sitting with @ImprisonedXII<3) i'm mainly into hsr so you will see me as hsr horses a lot. i'm very passionate abt phaidei and amphoreus!!!! pls talk to me about them i will not stfu
+haiiii i'm afk a LOT so whisp me for anything (usually sitting with @ImprisonedXII <3) i'm mainly into hsr so you will see me as hsr horses a lot. i'm very passionate abt phaidei and amphoreus!!!
 
-add me on hsr!! (america server): 621274430
+ships i very much enjoy: PHAIDEI, RINNIKI, florimatt, castlaea, castocipher, sunaxa, komahina, madohomu, jesterdoll + a lot more hi
 
 
 i hide very freely so please don't take offense if i temporarily hide you. if i perma hide, it's simply because of personal reasons. i won't unhide don't bother asking
